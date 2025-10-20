@@ -1,1 +1,1 @@
-# Documentaci-n-LoriTalk
+# Documentacion-LoriTalk
